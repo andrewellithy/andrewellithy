@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @andrewellithy
 - 👀 I’m interested in Web3, Blockchain and Crypto
-- 🌱 I’m currently learning Business Operations
+- 🌱 I’m in Business Operations
 - 💞️ I’m looking to collaborate on NFT Projects
 - 📫 How to reach me by sending me a DM
 
